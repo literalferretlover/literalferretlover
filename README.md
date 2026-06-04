@@ -1,16 +1,21 @@
-## Hi there 👋
+<div align="center">
+saige (preferably) / draco
 
-<!--
-**literalferretlover/literalferretlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<h6> ctto: fanielle </h6>
 
-Here are some ideas to get you started:
+<div class="container">
+<body>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+   <img
+        class="shuri"
+        src="https://media.tenor.com/kJe7rUoFOGUAAAAi/shuriken-phighting.gif"
+        alt="Shuriken">
+
+</body>
+
+<a href="https://drac0.atabook.org">ata</a>
+
+<a href="https://phighting.wiki/Shuriken">shuri</a>
+
+<a href=##>rentry (coming soon dont click!11!11!!)</a>
+</div>
