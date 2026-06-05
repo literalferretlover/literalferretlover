@@ -1,13 +1,14 @@
 <div align="center">
 saige (preferably) / draco
 
+<h6>ctto: fanielle</h6>
 
 <div class="container">
 <body>
 
    <img
         class="shuri"
-        src="https://cdn.discordapp.com/attachments/1367006597506924596/1512357088662261951/0JQ1Z4AAAAGSURBVAMAq48lUqv3SegAAAAASUVORK5CYII.png?ex=6a23cbcc&is=6a227a4c&hm=aa5ea2c82f95583a06b8e60cf9347bc6ee6c9990a04c2302de29e88c5c3db2cd&"
+        src="https://media.tenor.com/kJe7rUoFOGUAAAAi/shuriken-phighting.gif"
         alt="Shuriken">
 
 </body>
