@@ -8,7 +8,7 @@ saige (preferably) / draco
 
    <img
         class="shuri"
-        src="https://64.media.tumblr.com/dc3b7a94ecf3cb0178c84c47aaa49a1d/2e2eea1b1c5f20fa-4f/s250x400/66fa1df00784215c083ffc5a98140f99ec3a4499.gifv"
+        src="https://cdn.discordapp.com/attachments/1367006597506924596/1512360219374518373/9f3drIAAAAGSURBVAMAtksMwyhYmIAAAAASUVORK5CYII.png?ex=6a23ceb6&is=6a227d36&hm=efbeac53a2b9d5fecbfc87b1ee81584cddabea9f93cb879bb5e4b401fbcbdd36&"
         alt="Shuriken">
 
 </body>
