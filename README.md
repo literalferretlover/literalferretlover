@@ -1,7 +1,4 @@
 <div align="center">
-saige (preferably) / draco
-
-<h6>ctto: fanielle</h6>
 
 <div class="container">
 <body>
@@ -20,4 +17,5 @@ saige (preferably) / draco
 <a href=##>rentry (coming soon dont click!11!11!!)</a>
 
 <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ">free robux?!😳</a>
+
 </div>
