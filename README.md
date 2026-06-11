@@ -5,8 +5,9 @@
 
    <img
         class="shuri"
-        src="https://media.tenor.com/t6e6aPwgj4QAAAAi/phighting-shuriken.gif"
+        src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2c1ca5&is=6a2acb25&hm=23aaa295b25b3c10dfd3e60ac9130830ef7b7c59e7529e8fbf30f9529df9a97c&=&format=webp&quality=lossless&width=500&height=500"
         alt="Shuriken">
+        
 
 </body>
 
