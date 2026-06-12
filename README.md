@@ -1,20 +1,26 @@
 <div align="center">
 
-<div class="container">
-<body>
+<table>
+<tr>
+<td valign="middle" align="center" width="50%">
 
-   <img
-        class="shuri"
-        src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2c1ca5&is=6a2acb25&hm=23aaa295b25b3c10dfd3e60ac9130830ef7b7c59e7529e8fbf30f9529df9a97c&=&format=webp&quality=lossless&width=500&height=500"
-        alt="Shuriken">
-        
-
-</body>
-
+### links !
 <a href="https://drac0.atabook.org">ata</a>
 
-<a href="https://phighting.wiki/Shuriken">shuri</a>
 
-<a href=##>rentry (coming soon dont click!11!11!!)</a>
+<a href="https://rentry.co/thieveden">rentry</a>
+
+
+<a href=##>strawpage (SOON)</a>
+
+</td>
+
+<td align="center" width="60%">
+
+<img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2cc565&is=6a2b73e5&hm=566d9e74cabd5ee4d0cf1ea59a7cff447ac0ec4d9d91303bf30d3e2757601289&=&format=webp&quality=lossless&width=500&height=500">
+
+</td>
+</tr>
+</table>
 
 </div>
