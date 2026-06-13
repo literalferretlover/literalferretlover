@@ -4,7 +4,7 @@
 $${\color{darkorange}"Big\space blue\space eyes,\space pointy\space nose,\space chasing\space mice,\space and\space digging\space holes."}$$
 $${\color{darkorange}"Tiny\space paws,\space up\space the\space hill,\space suddenly\space you're\space standing\space still."}$$
 
-![](https://komarev.com/ghpvc/?username=literalferretlover&label="I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=literalferretlover&label=✧+"I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
 
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2d6e25&is=6a2c1ca5&hm=94dbf47f9c3c3867baa2aa4867b9d609fdadda3a981c562991a6fb3245b28f2c&=&format=webp&quality=lossless&width=450&height=450">
 
