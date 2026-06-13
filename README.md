@@ -15,7 +15,7 @@ $${\color{darkorange}"Like\space an\space angel\space in\space disguise."}$$
 
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1514879188371243210/4iD6g4AAAAGSURBVAMAL70hYqyWrNIAAAAASUVORK5CYII.png?ex=6a2cf8af&is=6a2ba72f&hm=0b95f3f769d8624167ff63572280a5c8fba96b7acc2d141a1a6a804af9788519&=&format=webp&quality=lossless&width=1704&height=170">
 
-<img src="https://media.discordapp.net/attachments/1409688737084084257/1515258833562505236/Untitled6_20260613152843.png?ex=6a2e5a42&is=6a2d08c2&hm=edbdde9672c0b42bef2319e5a73e6aeb744113b6f6374b5048fd5793f02246dd&=&format=webp&quality=lossless&width=1361&height=828">
+<img src="https://media.discordapp.net/attachments/1367006597506924596/1515265207998480444/Untitled6_20260613160014.png?ex=6a2e6031&is=6a2d0eb1&hm=ab8b6f95222c6572f1b1016b1f5d409c750518f70460a837af2ade61cd919452&=&format=webp&quality=lossless&width=1241&height=828">
 <br><br>
 
 <p>
