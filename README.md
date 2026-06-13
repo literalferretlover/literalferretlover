@@ -1,10 +1,9 @@
 <div align="center">
 
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1514879188371243210/4iD6g4AAAAGSURBVAMAL70hYqyWrNIAAAAASUVORK5CYII.png?ex=6a2cf8af&is=6a2ba72f&hm=0b95f3f769d8624167ff63572280a5c8fba96b7acc2d141a1a6a804af9788519&=&format=webp&quality=lossless&width=1704&height=170">
 
-$${\color{darkorange}"What\space does\space the\space fox\space say?"}$$
+$${\color{darkorange}"Your\space fur\space is\space red, so\space beautiful, like\space an\space angel\space in\space disguise."}$$
 
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2cc565&is=6a2b73e5&hm=566d9e74cabd5ee4d0cf1ea59a7cff447ac0ec4d9d91303bf30d3e2757601289&=&format=webp&quality=lossless&width=340&height=340">
+<img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2d6e25&is=6a2c1ca5&hm=94dbf47f9c3c3867baa2aa4867b9d609fdadda3a981c562991a6fb3245b28f2c&=&format=webp&quality=lossless&width=450&height=450">
 
 <br><br>
 
