@@ -1,4 +1,6 @@
-<div align="center">
+<div align="center">          
+                                                    ╔═════════ 🐾 ═════════╗
+  <br><br>
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1515198863231684649/de08ebd8e19ea37ea77e22a3ae10602f.png?ex=6a2e2268&is=6a2cd0e8&hm=274b145086aeb4aea5a29d213391e4e9c36021e3f48c0b67818cc27908002fd8&=&format=webp&quality=lossless&width=1136&height=210">
 
 $${\color{darkorange}"Big\space blue\space eyes,\space pointy\space nose,\space chasing\space mice,\space and\space digging\space holes."}$$
@@ -36,5 +38,6 @@ $${\color{darkorange}"Like\space an\space angel\space in\space disguise."}$$
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1515214658246545499/all-of-you-are-nice-people-kindness.gif?ex=6a2e311d&is=6a2cdf9d&hm=420ecb3bf01635cff21b778dcb8b79a404b06bfddc0972b8495de5eaf6c3c687&=&width=214&height=28"><img src="https://media.discordapp.net/attachments/1367006597506924596/1515214658561376326/all-of-you-are-nice-people-kindness.gif?ex=6a2e311d&is=6a2cdf9d&hm=43a18f71189b745b36ed082d5b7c9a47bf820e046f1d2c73e6a38c8f3ba57e31&=&width=214&height=28">
 <br><br>
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1515198863231684649/de08ebd8e19ea37ea77e22a3ae10602f.png?ex=6a2e2268&is=6a2cd0e8&hm=274b145086aeb4aea5a29d213391e4e9c36021e3f48c0b67818cc27908002fd8&=&format=webp&quality=lossless&width=1136&height=210">
-
+<br><br>
+                                                              ╚═════════ 🐾 ═════════╝
 </div>
