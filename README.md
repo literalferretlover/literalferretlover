@@ -5,15 +5,10 @@
 
 $${\color{darkorange}"Big\space blue\space eyes,\space pointy\space nose,\space chasing\space mice,\space and\space digging\space holes."}$$
 $${\color{darkorange}"Tiny\space paws,\space up\space the\space hill,\space suddenly\space you're\space standing\space still."}$$
-
-![](https://komarev.com/ghpvc/?username=literalferretlover&label=✧+"I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
-
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a2d6e25&is=6a2c1ca5&hm=94dbf47f9c3c3867baa2aa4867b9d609fdadda3a981c562991a6fb3245b28f2c&=&format=webp&quality=lossless&width=450&height=450">
-
 $${\color{darkorange}"Your\space fur\space is\space red,\space so\space beautiful."}$$
 $${\color{darkorange}"Like\space an\space angel\space in\space disguise."}$$
 
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1514879188371243210/4iD6g4AAAAGSURBVAMAL70hYqyWrNIAAAAASUVORK5CYII.png?ex=6a2cf8af&is=6a2ba72f&hm=0b95f3f769d8624167ff63572280a5c8fba96b7acc2d141a1a6a804af9788519&=&format=webp&quality=lossless&width=1704&height=170">
+![](https://komarev.com/ghpvc/?username=literalferretlover&label=✧+"I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
 
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1515265207998480444/Untitled6_20260613160014.png?ex=6a310331&is=6a2fb1b1&hm=5179b256acb49a6c3c4ba8ca0fec17a1a3ee14ceb48e56a5bf51b8d7ee8a3d12&=&format=webp&quality=lossless&width=1241&height=828">
 <br><br>
