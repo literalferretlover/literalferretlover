@@ -17,7 +17,7 @@ $${\color{darkorange}"Like\space an\space angel\space in\space disguise."}$$
   $${\color{chocolate}saige\space || draco\space || keath\space || rune!}$$
   $${\color{lightsalmon}proud\space transmasc\space bum ✧. ┊ ⁭ filipino\space ✧. ┊ oct14 }$$
   $${\color{lemonchiffon}c+h\space or\space kiss\space as\space you\space wish!˙⋆✮ ⁭ dncover\space unless\space you're\space my\space oomf! ˙⋆✮ strictly\space inspo\space ONLY }$$
-  $${\color{lightsalmon}iwec! 𝄞⨾𓍢ִ໋ ⁭ addicted\space to\space ferrets!\space(literally) 𝄞⨾𓍢ִ໋\space currently\space 5teen! }$$
+  $${\color{lightsalmon}iwec\space or\space w2i! 𝄞⨾𓍢ִ໋ ⁭ addicted\space to\space ferrets!\space(literally) 𝄞⨾𓍢ִ໋\space currently\space 5teen! }$$
   $${\color{chocolate}highly\space enc\space to\space check\space my\space rentry\space below\space if\space you\space want\space to\space bmf! }$$
 </p>
 
