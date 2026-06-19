@@ -9,12 +9,22 @@
 <p>
   $${\color{chocolate}saige\space || draco\space || keath\space || rune!}$$
   $${\color{lightsalmon}proud\space transmasc\space bum ✧. ┊ ⁭ filipino\space ✧. ┊ oct14 }$$
-  $${\color{lemonchiffon}c+h\space or\space kiss\space as\space you\space wish!˙⋆✮ ⁭ dncover\space unless\space you're\space my\space oomf! ˙⋆✮ strictly\space inspo\space ONLY }$$
+  $${\color{white}c+h\space or\space kiss\space as\space you\space wish!˙⋆✮ ⁭ dncover\space unless\space you're\space my\space oomf! ˙⋆✮ strictly\space inspo\space ONLY }$$
   $${\color{lightsalmon}iwec\space or\space w2i! 𝄞⨾𓍢ִ໋ ⁭ addicted\space to\space ferrets!\space(literally) 𝄞⨾𓍢ִ໋\space currently\space 5teen! }$$
   $${\color{chocolate}highly\space enc\space to\space check\space my\space rentry\space below\space if\space you\space want\space to\space bmf! }$$
 </p>
 
-<a href="https://drac0.atabook.org">atab  <a href="https://rentry.co/thieveden">rentry  <a href=##>strawpage(SOON)
+<p align="center">
+  $${\color{#741D07}✦}$$
+  <a href="https://your-atab-link.com">atab</a>
+  $${\color{#F26419}✦}$$
+  <a href="https://your-rentry-link.com">rentry</a>
+  $${\color{white}✦}$$
+  <a href="##">strawp (SOON)</a>
+  $${\color{#F26419}✦}$$
+  <a href="##">musicwall (SOON)</a>
+  $${\color{#741D07}✦}$$
+</p>
 
   <img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a2dd84e&is=6a2c86ce&hm=24412a2561e6ea6404db39976844b37d5869ec87585f631cb453a702ca84d40c&=&width=111&height=111">
 <br><br>
