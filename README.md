@@ -25,8 +25,6 @@
   <a href="##">musicwall (SOON)</a>
   $${\color{#741D07}✦}$$
 </p>
-
-  <img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a2dd84e&is=6a2c86ce&hm=24412a2561e6ea6404db39976844b37d5869ec87585f631cb453a702ca84d40c&=&width=111&height=111">
 <br><br>
 
 <img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a366a0e&is=6a35188e&hm=e1f9e1d75fa4aeae2ec36c398af530aff1f0ea386e1dc2bf896f867b860557e7&=&width=370&height=300">
