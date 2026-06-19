@@ -14,15 +14,10 @@
   $${\color{chocolate}highly\space enc\space to\space check\space my\space rentry\space below\space if\space you\space want\space to\space bmf! }$$
 </p>
 
-<a href="https://drac0.atabook.org">atab        <a href="https://rentry.co/thieveden">rentry        <a href=##>strawpage(SOON)
-
-  <img src="https://media.discordapp.net/attachments/1367006597506924596/1515210917766369401/ynaM0gAAAAGSURBVAMADDyzjPojlIAAAAASUVORK5CYII.png?ex=6a2e2da2&is=6a2cdc22&hm=89ce050701597b0e70fd19a011e83750fc650b3f0d345f71cf688f604006dfa1&=&format=webp&quality=lossless&width=20&height=20">
+<a href="https://drac0.atabook.org">atab  <a href="https://rentry.co/thieveden">rentry  <a href=##>strawpage(SOON)
 
   <img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a2dd84e&is=6a2c86ce&hm=24412a2561e6ea6404db39976844b37d5869ec87585f631cb453a702ca84d40c&=&width=111&height=111">
 <br><br>
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1515197357031948340/all-of-you-are-nice-people-kindness.gif?ex=6a2e2100&is=6a2ccf80&hm=3098591e0b94b906f7c1e26582c8612aec9b4cf5e0b577deb7eaa7bb844c1411&=&width=214&height=28"><img src="https://media.discordapp.net/attachments/1367006597506924596/1515197576268222464/all-of-you-are-nice-people-kindness.gif?ex=6a2e2135&is=6a2ccfb5&hm=43235c539a34b669188be176c886b932a09e49eadebf2a77aadefdad1d588a7c&=&width=214&height=28">
-
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1515214658246545499/all-of-you-are-nice-people-kindness.gif?ex=6a2e311d&is=6a2cdf9d&hm=420ecb3bf01635cff21b778dcb8b79a404b06bfddc0972b8495de5eaf6c3c687&=&width=214&height=28"><img src="https://media.discordapp.net/attachments/1367006597506924596/1515214658561376326/all-of-you-are-nice-people-kindness.gif?ex=6a2e311d&is=6a2cdf9d&hm=43a18f71189b745b36ed082d5b7c9a47bf820e046f1d2c73e6a38c8f3ba57e31&=&width=214&height=28">
 
 <img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a366a0e&is=6a35188e&hm=e1f9e1d75fa4aeae2ec36c398af530aff1f0ea386e1dc2bf896f867b860557e7&=&width=370&height=300">
 <br><br>
