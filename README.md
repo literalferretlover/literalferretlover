@@ -14,9 +14,8 @@
   $${\color{chocolate}highly\space enc\space to\space check\space my\space rentry\space below\space if\space you\space want\space to\space bmf! }$$
 </p>
 
-<a href="https://drac0.atabook.org">atab
-  <img src="https://media.discordapp.net/attachments/1367006597506924596/1515210917766369401/ynaM0gAAAAGSURBVAMADDyzjPojlIAAAAASUVORK5CYII.png?ex=6a2e2da2&is=6a2cdc22&hm=89ce050701597b0e70fd19a011e83750fc650b3f0d345f71cf688f604006dfa1&=&format=webp&quality=lossless&width=20&height=20"> <a href="https://rentry.co/thieveden">rentry
-  <img src="https://media.discordapp.net/attachments/1367006597506924596/1515211864663916584/zVgAZwAAAAZJREFUAwDVeL1FqtdxwAAAABJRU5ErkJggg.png?ex=6a2e2e83&is=6a2cdd03&hm=14d4898442acce8cb8247ade8eb5619ce85bd3520702317680f7f3176aa3b942&=&format=webp&quality=lossless&width=29&height=29"> <a href=##>strawpage(SOON)
+<a href="https://drac0.atabook.org">atab        <a href="https://rentry.co/thieveden">rentry        <a href=##>strawpage(SOON)
+
   <img src="https://media.discordapp.net/attachments/1367006597506924596/1515210917766369401/ynaM0gAAAAGSURBVAMADDyzjPojlIAAAAASUVORK5CYII.png?ex=6a2e2da2&is=6a2cdc22&hm=89ce050701597b0e70fd19a011e83750fc650b3f0d345f71cf688f604006dfa1&=&format=webp&quality=lossless&width=20&height=20">
 
   <img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a2dd84e&is=6a2c86ce&hm=24412a2561e6ea6404db39976844b37d5869ec87585f631cb453a702ca84d40c&=&width=111&height=111">
