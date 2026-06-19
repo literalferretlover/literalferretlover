@@ -16,9 +16,9 @@
 
 <p align="center">
   $${\color{#741D07}✦}$$
-  <a href="https://your-atab-link.com">atab</a>
+  <a href="https://drac0.atabook.org">atab</a>
   $${\color{#F26419}✦}$$
-  <a href="https://your-rentry-link.com">rentry</a>
+  <a href="https://rentry.co/thieveden">rentry</a>
   $${\color{white}✦}$$
   <a href="##">strawp (SOON)</a>
   $${\color{#F26419}✦}$$
