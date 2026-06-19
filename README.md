@@ -1,16 +1,9 @@
 <div align="center">          
-                                                                  ╔═════════ 🐾 ═════════╗
-  <br><br>
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1515198863231684649/de08ebd8e19ea37ea77e22a3ae10602f.png?ex=6a2e2268&is=6a2cd0e8&hm=274b145086aeb4aea5a29d213391e4e9c36021e3f48c0b67818cc27908002fd8&=&format=webp&quality=lossless&width=1136&height=210">
-
-$${\color{darkorange}"Big\space blue\space eyes,\space pointy\space nose,\space chasing\space mice,\space and\space digging\space holes."}$$
-$${\color{darkorange}"Tiny\space paws,\space up\space the\space hill,\space suddenly\space you're\space standing\space still."}$$
-$${\color{darkorange}"Your\space fur\space is\space red,\space so\space beautiful."}$$
-$${\color{darkorange}"Like\space an\space angel\space in\space disguise."}$$
+<img src="https://media.discordapp.net/attachments/1367006597506924596/1517493626223984832/Untitled16_20260619191749.png?ex=6a367b92&is=6a352a12&hm=62b9667541aa7ef636b9655ca99bf903d5dbd50933226fb52e64bbdc8909486b&=&format=webp&quality=lossless&width=1550&height=500">
 
 ![](https://komarev.com/ghpvc/?username=literalferretlover&label=✧+"I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
 
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1515265207998480444/Untitled6_20260613160014.png?ex=6a310331&is=6a2fb1b1&hm=5179b256acb49a6c3c4ba8ca0fec17a1a3ee14ceb48e56a5bf51b8d7ee8a3d12&=&format=webp&quality=lossless&width=1241&height=828">
+<img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a35ffe5&is=6a34ae65&hm=3ee1780e21439e8ff609cd06e282504277a5c3736750b384a74f67eed18d8cd0&=&format=webp&quality=lossless&width=400&height=400">
 <br><br>
 
 <p>
@@ -31,8 +24,9 @@ $${\color{darkorange}"Like\space an\space angel\space in\space disguise."}$$
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1515197357031948340/all-of-you-are-nice-people-kindness.gif?ex=6a2e2100&is=6a2ccf80&hm=3098591e0b94b906f7c1e26582c8612aec9b4cf5e0b577deb7eaa7bb844c1411&=&width=214&height=28"><img src="https://media.discordapp.net/attachments/1367006597506924596/1515197576268222464/all-of-you-are-nice-people-kindness.gif?ex=6a2e2135&is=6a2ccfb5&hm=43235c539a34b669188be176c886b932a09e49eadebf2a77aadefdad1d588a7c&=&width=214&height=28">
 
 <img src="https://media.discordapp.net/attachments/1367006597506924596/1515214658246545499/all-of-you-are-nice-people-kindness.gif?ex=6a2e311d&is=6a2cdf9d&hm=420ecb3bf01635cff21b778dcb8b79a404b06bfddc0972b8495de5eaf6c3c687&=&width=214&height=28"><img src="https://media.discordapp.net/attachments/1367006597506924596/1515214658561376326/all-of-you-are-nice-people-kindness.gif?ex=6a2e311d&is=6a2cdf9d&hm=43a18f71189b745b36ed082d5b7c9a47bf820e046f1d2c73e6a38c8f3ba57e31&=&width=214&height=28">
+
+<img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a366a0e&is=6a35188e&hm=e1f9e1d75fa4aeae2ec36c398af530aff1f0ea386e1dc2bf896f867b860557e7&=&width=370&height=300">
 <br><br>
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1515198863231684649/de08ebd8e19ea37ea77e22a3ae10602f.png?ex=6a2e2268&is=6a2cd0e8&hm=274b145086aeb4aea5a29d213391e4e9c36021e3f48c0b67818cc27908002fd8&=&format=webp&quality=lossless&width=1136&height=210">
-<br><br>
-                                                              ╚═════════ 🐾 ═════════╝
+<img src="https://media.discordapp.net/attachments/1367006597506924596/1517493627243466772/Untitled15_20260619192920.png?ex=6a367b92&is=6a352a12&hm=c3d4a183f5be8144c233c34373916c35d36e653224239114d6564638b84a26e0&=&format=webp&quality=lossless&width=1305&height=828">
+
 </div>
