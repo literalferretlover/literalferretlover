@@ -20,7 +20,7 @@
   $${\color{#F26419}✦}$$
   <a href="https://rentry.co/thieveden">rentry</a>
   $${\color{white}✦}$$
-  <a href="##">strawp (SOON)</a>
+  <a href="https://saigester.straw.page">strawp (SOON)</a>
   $${\color{#F26419}✦}$$
   <a href="##">musicwall (SOON)</a>
   $${\color{#741D07}✦}$$
