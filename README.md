@@ -22,7 +22,7 @@
   $${\color{white}✦}$$
   <a href="https://saigester.straw.page">strawp</a>
   $${\color{#F26419}✦}$$
-  <a href="##">musicwall (SOON)</a>
+  <a href="https://ferrehuh.straw.page">musicwall</a>
   $${\color{#741D07}✦}$$
 </p>
 <br><br>
