@@ -7,7 +7,7 @@
 <br><br>
 
 <p>
-  $${\color{chocolate}saige\space || draco\space || keath\space || rune!}$$
+  $${\color{chocolate}saige!\space || draco\space || keath\space || rune}$$
   $${\color{lightsalmon}proud\space transmasc\space bum ✧. ┊ ⁭ filipino\space ✧. ┊ oct14 }$$
   $${\color{white}c+h\space or\space kiss\space as\space you\space wish!˙⋆✮ ⁭ dncover\space unless\space you're\space my\space oomf! ˙⋆✮ strictly\space inspo\space ONLY }$$
   $${\color{lightsalmon}iwec\space or\space w2i! 𝄞⨾𓍢ִ໋ ⁭ addicted\space to\space ferrets!\space(literally) 𝄞⨾𓍢ִ໋\space currently\space 5teen! }$$
