@@ -1,6 +1,6 @@
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=literalferretlover&label=>q<&color=3592a6&style=flat&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=literalferretlover&label=(˶^ᗜ^˵)&color=3592a6&style=flat&abbreviated=true)
 
 <p align="center">
   <img src="https://static.wikitide.net/phightingwiki/thumb/3/37/Sticker_vamoopy_Sorrowfin.png/120px-Sticker_vamoopy_Sorrowfin.png?20260608204907">
