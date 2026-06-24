@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=literalferretlover&label=✧+"I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
 
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1514642922811687051/600px-Sticker_vamoopy_Devious_Fox.png?ex=6a35ffe5&is=6a34ae65&hm=3ee1780e21439e8ff609cd06e282504277a5c3736750b384a74f67eed18d8cd0&=&format=webp&quality=lossless&width=400&height=400">
+<img src="https://static.wikitide.net/phightingwiki/thumb/f/fa/Sticker_vamoopy_Devious_Fox.png/255px-Sticker_vamoopy_Devious_Fox.png">
 <br><br>
 
 <p>
