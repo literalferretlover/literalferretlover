@@ -1,34 +1,24 @@
-<div align="center">          
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1517493626223984832/Untitled16_20260619191749.png?ex=6a367b92&is=6a352a12&hm=62b9667541aa7ef636b9655ca99bf903d5dbd50933226fb52e64bbdc8909486b&=&format=webp&quality=lossless&width=1550&height=500">
-
-![](https://komarev.com/ghpvc/?username=literalferretlover&label=✧+"I'll+catch+'em!"&color=d97939&style=flat&abbreviated=true)
-
-<img src="https://static.wikitide.net/phightingwiki/thumb/f/fa/Sticker_vamoopy_Devious_Fox.png/255px-Sticker_vamoopy_Devious_Fox.png">
-<br><br>
-
-<p>
-  $${\color{chocolate}saige!\space || draco\space || keath\space || rune}$$
-  $${\color{lightsalmon}proud\space transmasc\space bum ✧. ┊ ⁭ filipino\space ✧. ┊ oct14 }$$
-  $${\color{white}c+h\space or\space kiss\space as\space you\space wish!˙⋆✮ ⁭ dncover\space unless\space you're\space my\space oomf! ˙⋆✮ strictly\space inspo\space ONLY }$$
-  $${\color{lightsalmon}iwec\space or\space w2i! 𝄞⨾𓍢ִ໋ ⁭ addicted\space to\space ferrets!\space(literally) 𝄞⨾𓍢ִ໋\space currently\space 5teen! }$$
-  $${\color{chocolate}highly\space enc\space to\space check\space my\space rentry\space below\space if\space you\space want\space to\space bmf! }$$
-</p>
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=literalferretlover&label=>q<&color=3592a6&style=flat&abbreviated=true)
 
 <p align="center">
-  $${\color{#741D07}✦}$$
-  <a href="https://drac0.atabook.org">atab</a>
-  $${\color{#F26419}✦}$$
+  <img src="https://static.wikitide.net/phightingwiki/thumb/3/37/Sticker_vamoopy_Sorrowfin.png/120px-Sticker_vamoopy_Sorrowfin.png?20260608204907">
+  $${\color{#4bc0b1}୭˚. ᵎᵎ}$$
+  <a href="https://drac0.atabook.org">atabook</a>
+
+  <p align="center">
+  $${\color{#fe9a6c}୭˚. ᵎᵎ}$$
   <a href="https://rentry.co/thieveden">rentry</a>
-  $${\color{white}✦}$$
-  <a href="https://saigester.straw.page">strawp</a>
-  $${\color{#F26419}✦}$$
+  <img src="https://static.wikitide.net/phightingwiki/thumb/5/57/Sticker_vamoopy_Splash_Of_Love.png/120px-Sticker_vamoopy_Splash_Of_Love.png?20260608204949">
+
+  <p align="center">
+  <img src="https://static.wikitide.net/phightingwiki/thumb/2/2a/Sticker_vamoopy_Narcissism.png/120px-Sticker_vamoopy_Narcissism.png?20260608204923">
+  $${\color{#b2d668}୭˚. ᵎᵎ}$$
+  <a href="https://saigester.straw.page">strawpage</a>
+
+  <p align="center">
+  $${\color{#4f949d}୭˚. ᵎᵎ}$$
   <a href="https://ferrehuh.straw.page">musicwall</a>
-  $${\color{#741D07}✦}$$
+  <img src="https://static.wikitide.net/phightingwiki/thumb/a/af/Sticker_vamoopy_Your_Did_It.png/120px-Sticker_vamoopy_Your_Did_It.png?20260608204834">
 </p>
-<br><br>
-
-<img src="https://media.discordapp.net/attachments/1370950070194798735/1379405042750062623/makesweet-sevoy9.gif?ex=6a366a0e&is=6a35188e&hm=e1f9e1d75fa4aeae2ec36c398af530aff1f0ea386e1dc2bf896f867b860557e7&=&width=370&height=300">
-<br><br>
-<img src="https://media.discordapp.net/attachments/1367006597506924596/1517493627243466772/Untitled15_20260619192920.png?ex=6a367b92&is=6a352a12&hm=c3d4a183f5be8144c233c34373916c35d36e653224239114d6564638b84a26e0&=&format=webp&quality=lossless&width=1305&height=828">
-
-</div>
